@@ -1,0 +1,2 @@
+# muzakki-resolusi
+ehe selamanya
